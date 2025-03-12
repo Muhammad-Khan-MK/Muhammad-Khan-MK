@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on unity or MAUI
 - 📫 How to reach me: email me at: muhammadkhankk945@gmail.com
 - 😄 Pronouns: and, they and were
-- ⚡ Fun fact: i play games a lot
+- ⚡ Fun fact: i pray prayers a lot
 
 <!---
 Muhammad-Khan-MK/Muhammad-Khan-MK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
